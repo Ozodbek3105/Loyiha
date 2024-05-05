@@ -1,0 +1,1 @@
+# Soz o'yini musobaqa ko'rinishida
